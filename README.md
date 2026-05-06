@@ -26,3 +26,7 @@ Thiago.almeida.mariano@escola.pr.gov.br
 ![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExYzE5cjU1b2U2c2l6anViaGJtYTE5bHBoMnhqbXNqazdsbW81Y2d0cSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/gSgpjgIzZ2UWENEqOy/giphy.gif)
 
 ![](https://media1.tenor.com/m/8I9so6bdYAIAAAAd/alanzoka-alanzoka-coringa.gif)
+
+![](https://media1.tenor.com/m/YdmFHfZY25kAAAAC/dexter-superman.gif)
+![](https://media.tenor.com/f76KHn-TueQAAAAi/radiator-lightning-crusin%27-mcqueen.gif)
+![](https://media.tenor.com/DOXd_Ib7FwkAAAAi/100.gif)
